@@ -1,1 +1,1 @@
-# wallpaers-fpr-pc
+# Wallpaers-for-pc
